@@ -1,4 +1,4 @@
-###Forged repository of DRLR
+###Forged repository of DRLR. Content deleted. No spoiler!
 
 ## Introduction
 
